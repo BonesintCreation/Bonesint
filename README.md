@@ -22,7 +22,7 @@ A jornada no mundo do código é melhor quando compartilhada. Siga-me, conecte-s
 
 Explore, aprenda, colabore e transforme seus projetos em algo excepcional! 🚀
 
-🔗 GitHub - Bonesint
+🔗 GitHub - BonesintCreation
 
 ###Vamos codificar o Fortnite juntos! 💻✨
 
